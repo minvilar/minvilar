@@ -1,4 +1,4 @@
-## para de ser curioso 🦫
+## bem vindo (a)
 
 Meu nome: yasmin🩹
 
